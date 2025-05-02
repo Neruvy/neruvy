@@ -1,1 +1,1 @@
-- 👋 Hello! I'm Ezio, a creative kid who enjoys making all kinds of random projects using HTML and CSS, as well as developing fun games on Roblox. Currently, I'm learning more about HTML and CSS so I can build even cooler and more polished projects in the future.
+- 👋 Hello! I'm Ezio, a creative kid who enjoys making all kinds of random projects using HTML and CSS. Currently, I'm learning more about HTML and CSS so I can build even cooler and more polished projects in the future.
