@@ -4,6 +4,6 @@ Hello! I am a beginner coder (kinda) thats in middle school, I try my best to fo
 
 🔴 Do Not Disturb: Busy with projects or personal things.
 
-🟡 Idle: Not avaliable at the moment temporarily.
+🟡 Idle/Away: Not avaliable at the moment temporarily.
 
 🟢 Online: Avaliable to contact.
