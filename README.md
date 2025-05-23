@@ -1,4 +1,4 @@
-Hello! I am a beginner coder (kinda) thats in middle school, and I try my best to fork games into websites! (i don't know what else to write here..)
+Hello! I am a beginner coder (kinda) thats in middle school, I try my best to fork games into websites, and I'm in Symphonic Band, (i don't know what else to write here..)
 
 ![Discord](https://discord-readme-badge.vercel.app/api?id=1359675120502964234)
 
