@@ -6,4 +6,4 @@ Hello! I am a beginner coder (kinda) thats in middle school, I try my best to fo
 
 🟡 Idle: Not avaliable at the moment temporarily.
 
-🟢 Online: pretty self-explanitory.
+🟢 Online: Avaliable to contact.
