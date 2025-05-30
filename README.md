@@ -4,6 +4,7 @@ Hello! I am a beginner coder (kind of) thats in middle school.
 - **I fork some games into websites ⌨️**
 - **I make unblocked games for school 🕹️**
 - **I find ways to unblock school chromebooks 💻**
+- **I know quite a bit about weather ☁️**
 
 I like to do other activities outside of the technology world and really like science.
 
