@@ -1,4 +1,13 @@
-Hello! I am a beginner coder (kinda) thats in middle school, I try my best to fork games into websites, and I'm in Symphonic Band. (i don't know what else to write here..)
+Hello! I am a beginner coder (kind of) thats in middle school.
+
+- **I am in the Gladiator Symphonic Band (Percussion) 🥁**
+- **I fork some games into websites ⌨️**
+- **I make unblocked games for school 🕹️**
+- **I find ways to unblock school chromebooks 💻**
+
+I like to do other activities outside of the technology world and really like science.
+
+"*Life's short and I try to make it enjoyable for myself and other nice people around me.*" - Endermanch (Andrew)
 
 ![Discord](https://discord-readme-badge.vercel.app/api?id=1359675120502964234)
 
