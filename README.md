@@ -1,10 +1,9 @@
-Hello! I am a beginner coder (kind of) thats in middle school.
+Hello! I am a beginner meteorologist thats in middle school.
 
 - **I am in the Gladiator Symphonic Band (Percussion) 🥁**
-- **I fork some games into websites ⌨️**
 - **I make unblocked games for school 🕹️**
-- **I find ways to unblock school chromebooks 💻**
 - **I know quite a bit about weather ☁️**
+- **I make videos and live streams on weather topics**
 
 I like to do other activities outside of the technology world and really like science.
 
