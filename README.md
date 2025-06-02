@@ -1,4 +1,4 @@
-Hello! I am a beginner meteorologist thats in middle school.
+Hello! I am a beginner weather analyst thats in middle school.
 
 - **I am in the Gladiator Symphonic Band (Percussion) 🥁**
 - **I make unblocked games for school 🕹️**
