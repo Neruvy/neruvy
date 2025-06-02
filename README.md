@@ -1,11 +1,8 @@
 Hello! I am a beginner weather analyst thats in middle school.
 
 - **I am in the Gladiator Symphonic Band (Percussion) 🥁**
-- **I make unblocked games for school 🕹️**
 - **I know quite a bit about weather ☁️**
 - **I make videos and live streams on weather topics**
-
-I like to do other activities outside of the technology world and really like science.
 
 "*Life's short and I try to make it enjoyable for myself and other nice people around me.*" - Endermanch (Andrew)
 
