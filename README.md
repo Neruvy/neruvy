@@ -1,4 +1,4 @@
-Hello! I am a beginner weather analyst thats in middle school.
+Hello! I am a beginner weather analyst thats in middle school. I no longer do coding.
 
 - **I am in the Gladiator Symphonic Band (Percussion) 🥁**
 - **I know quite a bit about weather ☁️**
