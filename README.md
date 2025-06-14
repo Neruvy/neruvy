@@ -1,5 +1,6 @@
-Hello! I am a beginner weather analyst thats in middle school. I no longer do coding.
+Hello! I am a beginner weather analyst thats in middle school. I only do ROBLOX scripting and ROBLOX game development.
 
+- **I am a Beginner ROBLOX Scripter and Game Developer**
 - **I am in the Gladiator Symphonic Band (Percussion) 🥁**
 - **I know quite a bit about weather ☁️**
 - **I make videos and live streams on weather topics**
